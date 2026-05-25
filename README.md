@@ -40,3 +40,12 @@ Additional levels
 Boss fights
 Multiplayer support
 Multiple endings
+
+
+NOTES:
+follow exit signs, 
+avoid garnny,
+be careful of the screaming cars
+there are traps
+the fire kills
+
